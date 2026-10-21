@@ -1,1 +1,1 @@
-Welcome to my Respository! This HTML code is about my Game Studio and the game in the future
+Welcome to my Respository! This HTML code is about my Game Studio customer service and Game later on in the future!
